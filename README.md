@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @rooblianaa
 - 👀 I’m interested in ...sdf
 - 
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...5
 - 💞️ I’m looking to collaborate on ...y5
 - 📫 How to reach me ...w
 - 😄 Pronouns: ...

@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning ...5
 - 💞️ I’m looking to collaborate on ...y56612212
 - 📫 How to reach me ...w
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...98790
 - ⚡ Fun fact: ...
 sd
 <!---
